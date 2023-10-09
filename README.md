@@ -1,1 +1,1 @@
-# YidnekTheEthio Class of June Zevangadi
+# YidnekZEthio Class of June ZEvangadi
